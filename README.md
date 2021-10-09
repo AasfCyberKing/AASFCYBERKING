@@ -16,7 +16,7 @@
 - ▶️ Normal YouTuber
 - 🖼️ A Professional Logo Maker
 - 📞 A Big Telegram Addicted
-- 🇮🇳 A Indian Coder
+- 🇮🇳 An Indian Coder
 - ©️  Copyright 2021
 
 ## MY GIT STATS
