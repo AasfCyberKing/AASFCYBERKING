@@ -1,1 +1,1 @@
-# Let's Kill Gays
+# Print("Owo")
