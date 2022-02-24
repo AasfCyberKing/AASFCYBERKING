@@ -7,8 +7,8 @@
 
 **➣ I’m Currently Working With @Yuki_Network And I Proud Of It**  
 **➣ I’m Currently Learning  Python, Html And Etc**  
-**➣ I’m Looking For A Best Friend Who Helpes Me On My Work** 
-**➣ I'm Currently Concentrating My Studies, My Bot Stuffs, Yt And Etc**  
+**➣ I’m Looking For A Best Friend Who Helpes Me On My Work**      
+**➣ I'm Currently Concentrating My Studies, My Bot Stuffs, Yt And Etc**        
 **➣ You Can Use My Dm As Your Help Desk**  
 **➣ Contact Me At Tg :** [@AASF_CYBERKING](telegram.me/AASF_CYBERKING)  
 **➣ Friends :  All Are My Friends But Not True Frds**   
